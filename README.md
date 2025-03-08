@@ -1,8 +1,9 @@
-# 微信公众号：量子孤岛
+# 微信公众号：量子象限
 
 ## 关于岛主
-喜欢猎奇的研究生，软件/工具控，黑科技控，喜欢音乐、运动、读书、看电影，立志做一个达芬奇式的通才~
+喜欢猎奇的研究生，软件/工具控，黑科技控，喜欢音乐、运动、读书、投资、看电影，立志做一个达芬奇式的通才~
 ## 我的足迹
+- [投资驿站](https://touzihub.com)
 - [个人网站](https://wangtao27.top/)
 - [量子孤岛杂货店](http://quantumisland.ys168.com/)
 - [知乎](https://www.zhihu.com/people/gu-dao-violet/activities)
@@ -15,7 +16,7 @@
 
 ## 期待你的登岛！
 
-![量子孤岛](https://pic1.superbed.cn/item/5dea2f56f1f6f81c5007e0c3.png)
+![量子象限](https://pic1.superbed.cn/item/5dea2f56f1f6f81c5007e0c3.png)
 
 
 
